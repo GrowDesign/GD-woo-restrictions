@@ -1,0 +1,1 @@
+# GD-woo-restrictions
